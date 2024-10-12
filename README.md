@@ -1,0 +1,2 @@
+# I-will-build-clickbank-affiliate-marketing-affiliate-sales-funnel
+Do you want to work as an affiliate marketer for ClickBank and make money?    Do you need a results-driven structure, a high-converting sales funnel, and committed assistance to make sure you succeed?    It's crucial to remember that sales funnels can be difficult; in fact, poorly designed funnels are the reason behind 97.9% of campaign failures.
